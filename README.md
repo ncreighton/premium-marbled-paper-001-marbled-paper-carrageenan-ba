@@ -1,0 +1,2 @@
+# premium-marbled-paper-001-marbled-paper-carrageenan-ba
+Drowning in scattered notes about marbled paper projects and carrageenan bath formulas? The Marbled Paper &amp; Carrageenan Bath Float Hub consolidates every design idea, ingredient ratio, and production workflow into one beautifully organized Notion workspace.  This isn't just another template—it's a complete production hub built specifically for make
